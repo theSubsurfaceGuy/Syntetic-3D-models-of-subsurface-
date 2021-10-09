@@ -1,1 +1,1 @@
-# Syntetic-3D-models-of-subsurface-
+# Synthetic-3D-models-of-subsurface-
